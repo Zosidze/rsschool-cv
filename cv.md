@@ -1,5 +1,7 @@
 # CV
-* Full Name :  Ana Zosidze
+* Full Name :  * [Ana Zosidze](https://www.facebook.com/ana.zosidze/)
+               * [linkedin](https://www.linkedin.com/in/ana-zosidze-712561200/)
+               * [GitHub](https://github.com/Zosidze)
 ## Contact info :
 * Gmail : anazosidze23@gmail.com
 * phone number : 595-10-58-05
