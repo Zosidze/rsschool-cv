@@ -1,5 +1,5 @@
 # CV
-* Full Name :  * Ana Zosidze
+* Full Name : Ana Zosidze
 * Social Links :           
  * [FB](https://www.facebook.com/ana.zosidze/)
  * [linkedin](https://www.linkedin.com/in/ana-zosidze-712561200/)
